@@ -17,7 +17,7 @@ AWS, Tableau
 ### Soft skills:
 Organisation, Teamwork, Creative Thinking, Communication
 ### Languages:
-English: Good, Arabic: Native
+English: Very Good, Arabic: Native
 
 
 ### Find me elsewhere 🌎
